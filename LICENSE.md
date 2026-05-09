@@ -1,4 +1,4 @@
-
+instant jujutsu infinite Script is the best jujutsu infinite Script, featuring auto-sell and auto-collect. Safe and powerful for all your needs.
 
 
 
